@@ -1,2 +1,3 @@
-# Abal4balhack
-Hanya gara2 jomblo
+# Abal4balhack #
+===============
+# Mohon kerjasama nya hehe, pemula boleh ikut #
